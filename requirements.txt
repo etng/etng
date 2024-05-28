@@ -1,0 +1,6 @@
+python-graphql-client
+httpx
+feedparser
+six
+urllib3 
+requests

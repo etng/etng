@@ -14,3 +14,20 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+---
+
+<table>
+<tr>
+<td valign="top" width="50%">
+<img src="metrics.svg" alt="Metric" />
+</td>
+<td valign="top" width="50%">
+
+## Latest Blog Posts
+<!-- blog start --> 
+<!-- blog end -->
+
+</td></tr></table>
+
