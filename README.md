@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[八人与解脱之穴 Messou mo Nai(2024) S01E07](http://www.fanxinzhui.com/rr/2565#S01E07) - 2024-05-31
+
+[Blue Moment Blue Moment(2024) S01E06](http://www.fanxinzhui.com/rr/2568#S01E06) - 2024-05-31
+
 [Destiny Destiny(2024) S01E08](http://www.fanxinzhui.com/rr/2560#S01E08) - 2024-05-30
 
 [喂 帅哥！！2 Oi Handsome! 2(2024) S02E08](http://www.fanxinzhui.com/rr/2558#S02E08) - 2024-05-29
 
 [9界线 9 Border(2024) S01E06](http://www.fanxinzhui.com/rr/2567#S01E06) - 2024-05-29
-
-[Anti Hero Anti Hero(2024) S01E07](http://www.fanxinzhui.com/rr/2564#S01E07) - 2024-05-28
-
-[Yips Yips(2024) S01E07](http://www.fanxinzhui.com/rr/2562#S01E07) - 2024-05-27
 <!-- blog end -->
 
 </td></tr></table>
