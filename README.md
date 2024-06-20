@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[9界线 9 Border(2024) S01E09](http://www.fanxinzhui.com/rr/2567#S01E09) - 2024-06-19
+
 [Anti Hero Anti Hero(2024) S01E10](http://www.fanxinzhui.com/rr/2564#S01E10) - 2024-06-18
 
 [Yips Yips(2024) S01E10](http://www.fanxinzhui.com/rr/2562#S01E10) - 2024-06-18
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [天旋地转〜和我恋爱的到底是谁？〜 Kururi Dare ga Watashi to Koi wo Shita(2024) S01E10](http://www.fanxinzhui.com/rr/2559#S01E10) - 2024-06-18
 
 [Believe―架向你的桥― Believe: Kimi ni Kakeru Hashi(2024) S01E08](http://www.fanxinzhui.com/rr/2569#S01E08) - 2024-06-17
-
-[Re: 复仇－在欲望的尽头－ Re: Revenge: Yokubou no Hate ni(2024) S01E10](http://www.fanxinzhui.com/rr/2561#S01E10) - 2024-06-16
 <!-- blog end -->
 
 </td></tr></table>
