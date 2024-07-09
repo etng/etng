@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[爱捉弄人的青岛君 Aoshimakun wa Ijiwaru(2024) S01E01](http://www.fanxinzhui.com/rr/2575#S01E01) - 2024-07-08
+
+[Billion X School Billion X School(2024) S01E01](http://www.fanxinzhui.com/rr/2574#S01E01) - 2024-07-08
+
+[微笑的套娃 Warau Matryoshka(2024) S01E02](http://www.fanxinzhui.com/rr/2571#S01E02) - 2024-07-08
+
 [听见向阳之声 Hidamari ga Kikoeru(2024) S01E01](http://www.fanxinzhui.com/rr/2573#S01E01) - 2024-07-05
 
 [海的开始 Umi no Hajimari(2024) S01E01](http://www.fanxinzhui.com/rr/2572#S01E01) - 2024-07-02
-
-[相棒 Aibou Season1(2002) S01E09](http://www.fanxinzhui.com/rr/2481#S01E09) - 2024-07-02
-
-[微笑的套娃 Warau Matryoshka(2024) S01E01](http://www.fanxinzhui.com/rr/2571#S01E01) - 2024-06-30
-
-[Blue Moment Blue Moment(2024) S01E10](http://www.fanxinzhui.com/rr/2568#S01E10) - 2024-06-29
 <!-- blog end -->
 
 </td></tr></table>
