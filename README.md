@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[Billion X School Billion X School(2024) S01E03](http://www.fanxinzhui.com/rr/2574#S01E03) - 2024-07-21
+
 [听见向阳之声 Hidamari ga Kikoeru(2024) S01E03](http://www.fanxinzhui.com/rr/2573#S01E03) - 2024-07-20
 
 [西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E02](http://www.fanxinzhui.com/rr/2578#S01E02) - 2024-07-19
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [黑色止血钳2 Black Pean 2(2024) S02E02](http://www.fanxinzhui.com/rr/2577#S02E02) - 2024-07-18
 
 [如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E02](http://www.fanxinzhui.com/rr/2576#S01E02) - 2024-07-18
-
-[海的开始 Umi no Hajimari(2024) S01E03](http://www.fanxinzhui.com/rr/2572#S01E03) - 2024-07-17
 <!-- blog end -->
 
 </td></tr></table>
