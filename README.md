@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[传说头目 翔 Densetsu no Head Sho(2024) S01E01](http://www.fanxinzhui.com/rr/2582#S01E01) - 2024-07-27
+
 [西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E03](http://www.fanxinzhui.com/rr/2578#S01E03) - 2024-07-26
 
 [如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E03](http://www.fanxinzhui.com/rr/2576#S01E03) - 2024-07-25
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [黑色止血钳2 Black Pean 2(2024) S02E03](http://www.fanxinzhui.com/rr/2577#S02E03) - 2024-07-25
 
 [锦糸町乐园～从涩谷出发直达～ Kinshicho Paradise: Shibuya kara Ippon(2024) S01E02](http://www.fanxinzhui.com/rr/2579#S01E02) - 2024-07-24
-
-[海的开始 Umi no Hajimari(2024) S01E04](http://www.fanxinzhui.com/rr/2572#S01E04) - 2024-07-24
 <!-- blog end -->
 
 </td></tr></table>
