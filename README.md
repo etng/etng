@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E04](http://www.fanxinzhui.com/rr/2576#S01E04) - 2024-08-03
+
 [听见向阳之声 Hidamari ga Kikoeru(2024) S01E05](http://www.fanxinzhui.com/rr/2573#S01E05) - 2024-08-02
 
 [天空之城 sky castle(2024) S01E02](http://www.fanxinzhui.com/rr/2583#S01E02) - 2024-08-02
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E03](http://www.fanxinzhui.com/rr/2580#S01E03) - 2024-08-02
 
 [黑色止血钳2 Black Pean 2(2024) S02E04](http://www.fanxinzhui.com/rr/2577#S02E04) - 2024-08-02
-
-[传说头目 翔 Densetsu no Head Sho(2024) S01E02](http://www.fanxinzhui.com/rr/2582#S01E02) - 2024-08-02
 <!-- blog end -->
 
 </td></tr></table>
