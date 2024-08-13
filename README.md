@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[Billion X School Billion X School(2024) S01E06](http://www.fanxinzhui.com/rr/2574#S01E06) - 2024-08-12
+
+[传说头目 翔 Densetsu no Head Sho(2024) S01E03](http://www.fanxinzhui.com/rr/2582#S01E03) - 2024-08-12
+
+[天空之城 sky castle(2024) S01E03](http://www.fanxinzhui.com/rr/2583#S01E03) - 2024-08-11
+
+[听见向阳之声 Hidamari ga Kikoeru(2024) S01E06](http://www.fanxinzhui.com/rr/2573#S01E06) - 2024-08-11
+
 [如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E05](http://www.fanxinzhui.com/rr/2576#S01E05) - 2024-08-10
-
-[西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E05](http://www.fanxinzhui.com/rr/2578#S01E05) - 2024-08-09
-
-[黑色止血钳2 Black Pean 2(2024) S02E05](http://www.fanxinzhui.com/rr/2577#S02E05) - 2024-08-09
-
-[锦糸町乐园～从涩谷出发直达～ Kinshicho Paradise: Shibuya kara Ippon(2024) S01E04](http://www.fanxinzhui.com/rr/2579#S01E04) - 2024-08-08
-
-[GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E04](http://www.fanxinzhui.com/rr/2580#S01E04) - 2024-08-08
 <!-- blog end -->
 
 </td></tr></table>
