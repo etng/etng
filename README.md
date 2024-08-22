@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
-[爱捉弄人的青岛君 Aoshimakun wa Ijiwaru(2024) S01E05](http://www.fanxinzhui.com/rr/2575#S01E05) - 2024-08-20
+[Billion X School Billion X School(2024) S01E07](http://www.fanxinzhui.com/rr/2574#S01E07) - 2024-08-21
 
-[天空之城 sky castle(2024) S01E04](http://www.fanxinzhui.com/rr/2583#S01E04) - 2024-08-19
+[如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E07](http://www.fanxinzhui.com/rr/2576#S01E07) - 2024-08-21
 
-[传说头目 翔 Densetsu no Head Sho(2024) S01E04](http://www.fanxinzhui.com/rr/2582#S01E04) - 2024-08-18
+[微笑的套娃 Warau Matryoshka(2024) S01E08](http://www.fanxinzhui.com/rr/2571#S01E08) - 2024-08-21
 
-[如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E06](http://www.fanxinzhui.com/rr/2576#S01E06) - 2024-08-18
+[GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E05](http://www.fanxinzhui.com/rr/2580#S01E05) - 2024-08-21
 
-[西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E06](http://www.fanxinzhui.com/rr/2578#S01E06) - 2024-08-16
+[海的开始 Umi no Hajimari(2024) S01E08](http://www.fanxinzhui.com/rr/2572#S01E08) - 2024-08-21
 <!-- blog end -->
 
 </td></tr></table>
