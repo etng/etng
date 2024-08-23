@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[锦糸町乐园～从涩谷出发直达～ Kinshicho Paradise: Shibuya kara Ippon(2024) S01E06](http://www.fanxinzhui.com/rr/2579#S01E06) - 2024-08-22
+
 [Billion X School Billion X School(2024) S01E07](http://www.fanxinzhui.com/rr/2574#S01E07) - 2024-08-21
 
 [如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E07](http://www.fanxinzhui.com/rr/2576#S01E07) - 2024-08-21
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [微笑的套娃 Warau Matryoshka(2024) S01E08](http://www.fanxinzhui.com/rr/2571#S01E08) - 2024-08-21
 
 [GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E05](http://www.fanxinzhui.com/rr/2580#S01E05) - 2024-08-21
-
-[海的开始 Umi no Hajimari(2024) S01E08](http://www.fanxinzhui.com/rr/2572#S01E08) - 2024-08-21
 <!-- blog end -->
 
 </td></tr></table>
