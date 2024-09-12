@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E10](http://www.fanxinzhui.com/rr/2576#S01E10) - 2024-09-11
+
+[Shrink―精神科弱井医生― Shrink Seishinkai Yowai(2024) S01E02](http://www.fanxinzhui.com/rr/2584#S01E02) - 2024-09-11
+
+[GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E07](http://www.fanxinzhui.com/rr/2580#S01E07) - 2024-09-11
+
+[海的开始 Umi no Hajimari(2024) S01E11](http://www.fanxinzhui.com/rr/2572#S01E11) - 2024-09-11
+
 [微笑的套娃 Warau Matryoshka(2024) S01E11](http://www.fanxinzhui.com/rr/2571#S01E11) - 2024-09-10
-
-[Billion X School Billion X School(2024) S01E10](http://www.fanxinzhui.com/rr/2574#S01E10) - 2024-09-08
-
-[听见向阳之声 Hidamari ga Kikoeru(2024) S01E10](http://www.fanxinzhui.com/rr/2573#S01E10) - 2024-09-08
-
-[如积雪般的永寂 Furitsumore Kodokuna Shi yo(2024) S01E09](http://www.fanxinzhui.com/rr/2576#S01E09) - 2024-09-07
-
-[传说头目 翔 Densetsu no Head Sho(2024) S01E06](http://www.fanxinzhui.com/rr/2582#S01E06) - 2024-09-07
 <!-- blog end -->
 
 </td></tr></table>
