@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[传说头目 翔 Densetsu no Head Sho(2024) S01E08](http://www.fanxinzhui.com/rr/2582#S01E08) - 2024-09-22
+
+[黑色止血钳2 Black Pean 2(2024) S02E10](http://www.fanxinzhui.com/rr/2577#S02E10) - 2024-09-22
+
+[听见向阳之声 Hidamari ga Kikoeru(2024) S01E12](http://www.fanxinzhui.com/rr/2573#S01E12) - 2024-09-22
+
 [天空之城 sky castle(2024) S01E08](http://www.fanxinzhui.com/rr/2583#S01E08) - 2024-09-21
 
 [西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E11](http://www.fanxinzhui.com/rr/2578#S01E11) - 2024-09-20
-
-[爱捉弄人的青岛君 Aoshimakun wa Ijiwaru(2024) S01E09](http://www.fanxinzhui.com/rr/2575#S01E09) - 2024-09-20
-
-[锦糸町乐园～从涩谷出发直达～ Kinshicho Paradise: Shibuya kara Ippon(2024) S01E10](http://www.fanxinzhui.com/rr/2579#S01E10) - 2024-09-19
-
-[Shrink―精神科弱井医生― Shrink Seishinkai Yowai(2024) S01E03](http://www.fanxinzhui.com/rr/2584#S01E03) - 2024-09-19
 <!-- blog end -->
 
 </td></tr></table>
