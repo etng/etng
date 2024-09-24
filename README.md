@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[相棒 Aibou Season1(2002) S01E10](http://www.fanxinzhui.com/rr/2481#S01E10) - 2024-09-23
+
 [传说头目 翔 Densetsu no Head Sho(2024) S01E08](http://www.fanxinzhui.com/rr/2582#S01E08) - 2024-09-22
 
 [黑色止血钳2 Black Pean 2(2024) S02E10](http://www.fanxinzhui.com/rr/2577#S02E10) - 2024-09-22
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [听见向阳之声 Hidamari ga Kikoeru(2024) S01E12](http://www.fanxinzhui.com/rr/2573#S01E12) - 2024-09-22
 
 [天空之城 sky castle(2024) S01E08](http://www.fanxinzhui.com/rr/2583#S01E08) - 2024-09-21
-
-[西园寺小姐不做家务 Saionjisan wa Kaji wo Shinai(2024) S01E11](http://www.fanxinzhui.com/rr/2578#S01E11) - 2024-09-20
 <!-- blog end -->
 
 </td></tr></table>
