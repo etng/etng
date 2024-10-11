@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E03](http://www.fanxinzhui.com/rr/2586#S01E03) - 2024-10-11
+
+[黄金神威 —北海道刺青囚犯争夺篇— Golden Kamuy Hokkaido Shisei Shujin Sodatsuhen(2024) S01E01](http://www.fanxinzhui.com/rr/2587#S01E01) - 2024-10-10
+
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E02](http://www.fanxinzhui.com/rr/2586#S01E02) - 2024-10-10
 
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E01](http://www.fanxinzhui.com/rr/2586#S01E01) - 2024-10-08
 
 [若草物语—恋爱的姐妹和不恋爱的我— Wakakusa Monogatari Koisuru Shimai to Koisenu Watashi(2024) S01E01](http://www.fanxinzhui.com/rr/2585#S01E01) - 2024-10-08
-
-[锦糸町乐园～从涩谷出发直达～ Kinshicho Paradise: Shibuya kara Ippon(2024) S01E12](http://www.fanxinzhui.com/rr/2579#S01E12) - 2024-10-04
-
-[GO HOME～警视厅身份不明人员咨询室～ Go Home Keishichou Mimotofumeinin Soudanshitsu(2024) S01E10](http://www.fanxinzhui.com/rr/2580#S01E10) - 2024-10-01
 <!-- blog end -->
 
 </td></tr></table>
