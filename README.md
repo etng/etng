@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E12](http://www.fanxinzhui.com/rr/2586#S01E12) - 2024-10-25
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E11](http://www.fanxinzhui.com/rr/2586#S01E11) - 2024-10-25
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E10](http://www.fanxinzhui.com/rr/2586#S01E10) - 2024-10-25
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E09](http://www.fanxinzhui.com/rr/2586#S01E09) - 2024-10-25
+
 [全领域异常解决室 Zen Ryoiki Ijo Kaiketsu Shitsu(2024) S01E03](http://www.fanxinzhui.com/rr/2588#S01E03) - 2024-10-25
-
-[我的日记 My Diary(2024) S01E01](http://www.fanxinzhui.com/rr/2595#S01E01) - 2024-10-24
-
-[黄金神威 —北海道刺青囚犯争夺篇— Golden Kamuy Hokkaido Shisei Shujin Sodatsuhen(2024) S01E03](http://www.fanxinzhui.com/rr/2587#S01E03) - 2024-10-24
-
-[民王R Tamiou R(2024) S01E01](http://www.fanxinzhui.com/rr/2594#S01E01) - 2024-10-24
-
-[我们恋爱的理由 Watashitachi ga Koisuru Riyuu(2024) S01E02](http://www.fanxinzhui.com/rr/2592#S01E02) - 2024-10-22
 <!-- blog end -->
 
 </td></tr></table>
