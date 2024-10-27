@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[沉睡深海的钻石 Umi ni Nemuru Diamond(2024) S01E01](http://www.fanxinzhui.com/rr/2596#S01E01) - 2024-10-26
+
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E12](http://www.fanxinzhui.com/rr/2586#S01E12) - 2024-10-25
 
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E11](http://www.fanxinzhui.com/rr/2586#S01E11) - 2024-10-25
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E10](http://www.fanxinzhui.com/rr/2586#S01E10) - 2024-10-25
 
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E09](http://www.fanxinzhui.com/rr/2586#S01E09) - 2024-10-25
-
-[全领域异常解决室 Zen Ryoiki Ijo Kaiketsu Shitsu(2024) S01E03](http://www.fanxinzhui.com/rr/2588#S01E03) - 2024-10-25
 <!-- blog end -->
 
 </td></tr></table>
