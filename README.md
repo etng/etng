@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[沉睡深海的钻石 Umi ni Nemuru Diamond(2024) S01E02](http://www.fanxinzhui.com/rr/2596#S01E02) - 2024-11-07
+
+[黄金神威 Golden Kamuy(2024) S01E01](http://www.fanxinzhui.com/rr/2597#S01E01) - 2024-11-07
+
+[黄金神威 Golden Kamuy(2024) S01E01](http://www.fanxinzhui.com/rr/2597#S01E01) - 2024-11-07
+
 [若草物语—恋爱的姐妹和不恋爱的我— Wakakusa Monogatari Koisuru Shimai to Koisenu Watashi(2024) S01E04](http://www.fanxinzhui.com/rr/2585#S01E04) - 2024-11-06
 
 [我们恋爱的理由 Watashitachi ga Koisuru Riyuu(2024) S01E04](http://www.fanxinzhui.com/rr/2592#S01E04) - 2024-11-05
-
-[无能之鹰 Muno no Taka(2024) S01E04](http://www.fanxinzhui.com/rr/2589#S01E04) - 2024-11-03
-
-[Okura～疑难案件调查～ Okura Meikyuuiri Jiken Sousa(2024) S01E04](http://www.fanxinzhui.com/rr/2591#S01E04) - 2024-11-03
-
-[狮子的藏身处 Lion no Kakurega(2024) S01E04](http://www.fanxinzhui.com/rr/2590#S01E04) - 2024-11-03
 <!-- blog end -->
 
 </td></tr></table>
