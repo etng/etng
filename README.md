@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
-[异国日记 Ikoku Nikki(2024) S01E01](http://www.fanxinzhui.com/rr/2598#S01E01) - 2024-11-18
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E24](http://www.fanxinzhui.com/rr/2586#S01E24) - 2024-11-19
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E23](http://www.fanxinzhui.com/rr/2586#S01E23) - 2024-11-19
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E22](http://www.fanxinzhui.com/rr/2586#S01E22) - 2024-11-19
+
+[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E21](http://www.fanxinzhui.com/rr/2586#S01E21) - 2024-11-19
 
 [异国日记 Ikoku Nikki(2024) S01E01](http://www.fanxinzhui.com/rr/2598#S01E01) - 2024-11-18
-
-[Okura～疑难案件调查～ Okura Meikyuuiri Jiken Sousa(2024) S01E06](http://www.fanxinzhui.com/rr/2591#S01E06) - 2024-11-18
-
-[我的日记 My Diary(2024) S01E03](http://www.fanxinzhui.com/rr/2595#S01E03) - 2024-11-17
-
-[我们恋爱的理由 Watashitachi ga Koisuru Riyuu(2024) S01E06](http://www.fanxinzhui.com/rr/2592#S01E06) - 2024-11-17
 <!-- blog end -->
 
 </td></tr></table>
