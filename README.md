@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[Okura～疑难案件调查～ Okura Meikyuuiri Jiken Sousa(2024) S01E07](http://www.fanxinzhui.com/rr/2591#S01E07) - 2024-11-24
+
+[狮子的藏身处 Lion no Kakurega(2024) S01E07](http://www.fanxinzhui.com/rr/2590#S01E07) - 2024-11-24
+
+[相棒23 Aibou Season23(2024) S23E05](http://www.fanxinzhui.com/rr/2593#S23E05) - 2024-11-24
+
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E28](http://www.fanxinzhui.com/rr/2586#S01E28) - 2024-11-23
 
 [被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E27](http://www.fanxinzhui.com/rr/2586#S01E27) - 2024-11-23
-
-[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E26](http://www.fanxinzhui.com/rr/2586#S01E26) - 2024-11-23
-
-[被未来的我突袭了！？ Mirai no Watashi ni Bukkamasareru(2024) S01E25](http://www.fanxinzhui.com/rr/2586#S01E25) - 2024-11-23
-
-[全领域异常解决室 Zen Ryoiki Ijo Kaiketsu Shitsu(2024) S01E07](http://www.fanxinzhui.com/rr/2588#S01E07) - 2024-11-22
 <!-- blog end -->
 
 </td></tr></table>
