@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[沉睡深海的钻石 Umi ni Nemuru Diamond(2024) S01E06](http://www.fanxinzhui.com/rr/2596#S01E06) - 2024-12-07
+
 [民王R Tamiou R(2024) S01E07](http://www.fanxinzhui.com/rr/2594#S01E07) - 2024-12-05
 
 [Okura～疑难案件调查～ Okura Meikyuuiri Jiken Sousa(2024) S01E09](http://www.fanxinzhui.com/rr/2591#S01E09) - 2024-12-05
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [黄金神威 —北海道刺青囚犯争夺篇— Golden Kamuy Hokkaido Shisei Shujin Sodatsuhen(2024) S01E09](http://www.fanxinzhui.com/rr/2587#S01E09) - 2024-12-05
 
 [我的日记 My Diary(2024) S01E06](http://www.fanxinzhui.com/rr/2595#S01E06) - 2024-12-05
-
-[若草物语—恋爱的姐妹和不恋爱的我— Wakakusa Monogatari Koisuru Shimai to Koisenu Watashi(2024) S01E08](http://www.fanxinzhui.com/rr/2585#S01E08) - 2024-12-04
 <!-- blog end -->
 
 </td></tr></table>
