@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
-[狮子的藏身处 Lion no Kakurega(2024) S01E11](http://www.fanxinzhui.com/rr/2590#S01E11) - 2024-12-22
+[东京沙拉碗 Tokyo Salad Bowl(2025) S01E07](http://www.fanxinzhui.com/rr/2600#S01E07) - 2025-02-21
 
-[相棒23 Aibou Season23(2024) S23E08](http://www.fanxinzhui.com/rr/2593#S23E08) - 2024-12-21
+[热点 The Hot Spot(2025) S01E06](http://www.fanxinzhui.com/rr/2607#S01E06) - 2025-02-21
 
-[Okura～疑难案件调查～ Okura Meikyuuiri Jiken Sousa(2024) S01E11](http://www.fanxinzhui.com/rr/2591#S01E11) - 2024-12-20
+[Ensemble Ensemble(2025) S01E05](http://www.fanxinzhui.com/rr/2609#S01E05) - 2025-02-19
 
-[全领域异常解决室 Zen Ryoiki Ijo Kaiketsu Shitsu(2024) S01E10](http://www.fanxinzhui.com/rr/2588#S01E10) - 2024-12-20
+[售卖我的手 Boku no Te wo Urimasu(2023) S01E02](http://www.fanxinzhui.com/rr/2614#S01E02) - 2025-02-19
 
-[沉睡深海的钻石 Umi ni Nemuru Diamond(2024) S01E08](http://www.fanxinzhui.com/rr/2596#S01E08) - 2024-12-19
+[售卖我的手 Boku no Te wo Urimasu(2023) S01E01](http://www.fanxinzhui.com/rr/2614#S01E01) - 2025-02-17
 <!-- blog end -->
 
 </td></tr></table>
