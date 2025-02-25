@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[售卖我的手 Boku no Te wo Urimasu(2023) S01E03](http://www.fanxinzhui.com/rr/2614#S01E03) - 2025-02-24
+
+[119 Emergency Call 119 Emergency Call(2025) S01E05](http://www.fanxinzhui.com/rr/2603#S01E05) - 2025-02-24
+
 [日本最差劲的男人 ※我的家人是冒牌货 Nippon Ichi no Saitei Otoko Watashi no Kazoku wa Nisemono datta(2025) S01E07](http://www.fanxinzhui.com/rr/2601#S01E07) - 2025-02-24
 
 [相棒23 Aibou Season23(2024) S23E16](http://www.fanxinzhui.com/rr/2593#S23E16) - 2025-02-23
 
 [谁看见了孔雀在跳舞？ Kujaku no Dance, Dare ga Mita?(2025) S01E05](http://www.fanxinzhui.com/rr/2611#S01E05) - 2025-02-22
-
-[东京沙拉碗 Tokyo Salad Bowl(2025) S01E07](http://www.fanxinzhui.com/rr/2600#S01E07) - 2025-02-21
-
-[热点 The Hot Spot(2025) S01E06](http://www.fanxinzhui.com/rr/2607#S01E06) - 2025-02-21
 <!-- blog end -->
 
 </td></tr></table>
