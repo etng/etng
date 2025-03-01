@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[Ensemble Ensemble(2025) S06E01](http://www.fanxinzhui.com/rr/2609#S06E01) - 2025-02-28
+
+[东京沙拉碗 Tokyo Salad Bowl(2025) S01E08](http://www.fanxinzhui.com/rr/2600#S01E08) - 2025-02-28
+
 [森林 FOREST(2025) S01E06](http://www.fanxinzhui.com/rr/2605#S01E06) - 2025-02-27
 
 [带你坠入地狱尽头 Jigoku no Hate made Tsureteiku(2025) S01E06](http://www.fanxinzhui.com/rr/2608#S01E06) - 2025-02-27
 
 [私人银行家 Private Banker(2025) S01E07](http://www.fanxinzhui.com/rr/2602#S01E07) - 2025-02-27
-
-[售卖我的手 Boku no Te wo Urimasu(2023) S01E04](http://www.fanxinzhui.com/rr/2614#S01E04) - 2025-02-26
-
-[紫丁香花开的兽道 Rira no Hanasaku Kemonomichi(2025) S01E02](http://www.fanxinzhui.com/rr/2613#S01E02) - 2025-02-25
 <!-- blog end -->
 
 </td></tr></table>
