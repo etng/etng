@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[谁看见了孔雀在跳舞？ Kujaku no Dance, Dare ga Mita?(2025) S01E06](http://www.fanxinzhui.com/rr/2611#S01E06) - 2025-03-01
+
 [Ensemble Ensemble(2025) S06E01](http://www.fanxinzhui.com/rr/2609#S06E01) - 2025-02-28
 
 [东京沙拉碗 Tokyo Salad Bowl(2025) S01E08](http://www.fanxinzhui.com/rr/2600#S01E08) - 2025-02-28
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [森林 FOREST(2025) S01E06](http://www.fanxinzhui.com/rr/2605#S01E06) - 2025-02-27
 
 [带你坠入地狱尽头 Jigoku no Hate made Tsureteiku(2025) S01E06](http://www.fanxinzhui.com/rr/2608#S01E06) - 2025-02-27
-
-[私人银行家 Private Banker(2025) S01E07](http://www.fanxinzhui.com/rr/2602#S01E07) - 2025-02-27
 <!-- blog end -->
 
 </td></tr></table>
