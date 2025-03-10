@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
-[Ensemble Ensemble(2025) S01E07](http://www.fanxinzhui.com/rr/2609#S01E07) - 2025-03-06
+[119 Emergency Call 119 Emergency Call(2025) S01E07](http://www.fanxinzhui.com/rr/2603#S01E07) - 2025-03-09
 
-[东京沙拉碗 Tokyo Salad Bowl(2025) S01E09](http://www.fanxinzhui.com/rr/2600#S01E09) - 2025-03-06
+[相棒23 Aibou Season23(2024) S23E18](http://www.fanxinzhui.com/rr/2593#S23E18) - 2025-03-09
 
-[售卖我的手 Boku no Te wo Urimasu(2023) S01E06](http://www.fanxinzhui.com/rr/2614#S01E06) - 2025-03-05
+[谁看见了孔雀在跳舞？ Kujaku no Dance, Dare ga Mita?(2025) S01E07](http://www.fanxinzhui.com/rr/2611#S01E07) - 2025-03-09
 
-[119 Emergency Call 119 Emergency Call(2025) S01E06](http://www.fanxinzhui.com/rr/2603#S01E06) - 2025-03-04
+[日本最差劲的男人 ※我的家人是冒牌货 Nippon Ichi no Saitei Otoko Watashi no Kazoku wa Nisemono datta(2025) S01E09](http://www.fanxinzhui.com/rr/2601#S01E09) - 2025-03-09
 
-[私人银行家 Private Banker(2025) S01E08](http://www.fanxinzhui.com/rr/2602#S01E08) - 2025-03-04
+[带你坠入地狱尽头 Jigoku no Hate made Tsureteiku(2025) S01E08](http://www.fanxinzhui.com/rr/2608#S01E08) - 2025-03-09
 <!-- blog end -->
 
 </td></tr></table>
