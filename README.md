@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[日本最差劲的男人 ※我的家人是冒牌货 Nippon Ichi no Saitei Otoko Watashi no Kazoku wa Nisemono datta(2025) S01E10](http://www.fanxinzhui.com/rr/2601#S01E10) - 2025-03-15
+
+[谁看见了孔雀在跳舞？ Kujaku no Dance, Dare ga Mita?(2025) S01E08](http://www.fanxinzhui.com/rr/2611#S01E08) - 2025-03-15
+
+[带你坠入地狱尽头 Jigoku no Hate made Tsureteiku(2025) S01E09](http://www.fanxinzhui.com/rr/2608#S01E09) - 2025-03-15
+
 [Ensemble Ensemble(2025) S01E08](http://www.fanxinzhui.com/rr/2609#S01E08) - 2025-03-13
 
 [售卖我的手 Boku no Te wo Urimasu(2023) S01E08](http://www.fanxinzhui.com/rr/2614#S01E08) - 2025-03-13
-
-[跳跃大搜查线 Odoru Daisousasen(1997) S01E06](http://www.fanxinzhui.com/rr/2610#S01E06) - 2025-03-12
-
-[森林 FOREST(2025) S01E08](http://www.fanxinzhui.com/rr/2605#S01E08) - 2025-03-11
-
-[相棒 Aibou Season1(2002) S01E12](http://www.fanxinzhui.com/rr/2481#S01E12) - 2025-03-11
 <!-- blog end -->
 
 </td></tr></table>
