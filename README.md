@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[带你坠入地狱尽头 Jigoku no Hate made Tsureteiku(2025) S01E10](http://www.fanxinzhui.com/rr/2608#S01E10) - 2025-03-21
+
 [Ensemble Ensemble(2025) S01E09](http://www.fanxinzhui.com/rr/2609#S01E09) - 2025-03-20
 
 [119 Emergency Call 119 Emergency Call(2025) S01E08](http://www.fanxinzhui.com/rr/2603#S01E08) - 2025-03-19
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [热点 The Hot Spot(2025) S01E09](http://www.fanxinzhui.com/rr/2607#S01E09) - 2025-03-17
 
 [售卖我的手 Boku no Te wo Urimasu(2023) S01E09](http://www.fanxinzhui.com/rr/2614#S01E09) - 2025-03-17
-
-[相棒23 Aibou Season23(2024) S23E19](http://www.fanxinzhui.com/rr/2593#S23E19) - 2025-03-16
 <!-- blog end -->
 
 </td></tr></table>
