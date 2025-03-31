@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[119 Emergency Call 119 Emergency Call(2025) S01E10](http://www.fanxinzhui.com/rr/2603#S01E10) - 2025-03-31
+
+[热点 The Hot Spot(2025) S01E10](http://www.fanxinzhui.com/rr/2607#S01E10) - 2025-03-30
+
 [谁看见了孔雀在跳舞？ Kujaku no Dance, Dare ga Mita?(2025) S01E10](http://www.fanxinzhui.com/rr/2611#S01E10) - 2025-03-29
 
 [Ensemble Ensemble(2025) S01E10](http://www.fanxinzhui.com/rr/2609#S01E10) - 2025-03-25
 
 [售卖我的手 Boku no Te wo Urimasu(2023) S01E10](http://www.fanxinzhui.com/rr/2614#S01E10) - 2025-03-25
-
-[119 Emergency Call 119 Emergency Call(2025) S01E09](http://www.fanxinzhui.com/rr/2603#S01E09) - 2025-03-23
-
-[日本最差劲的男人 ※我的家人是冒牌货 Nippon Ichi no Saitei Otoko Watashi no Kazoku wa Nisemono datta(2025) S01E11](http://www.fanxinzhui.com/rr/2601#S01E11) - 2025-03-23
 <!-- blog end -->
 
 </td></tr></table>
