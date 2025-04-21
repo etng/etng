@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[魔物 Mamono(2025) S01E01](http://www.fanxinzhui.com/rr/2620#S01E01) - 2025-04-20
+
+[阿修罗医生 Dr. Asura(2025) S01E01](http://www.fanxinzhui.com/rr/2619#S01E01) - 2025-04-20
+
+[主播 Caster(2025) S01E01](http://www.fanxinzhui.com/rr/2618#S01E01) - 2025-04-20
+
 [地震之后 After The Quake(2025) S01E02](http://www.fanxinzhui.com/rr/2617#S01E02) - 2025-04-18
 
 [灾 Sai(2025) S01E02](http://www.fanxinzhui.com/rr/2616#S01E02) - 2025-04-15
-
-[对岸的家务事～这就是我的生存之道！～ Taigan no Kaji Kore ga Watashi no Ikirumichi(2025) S01E02](http://www.fanxinzhui.com/rr/2615#S01E02) - 2025-04-13
-
-[119 Emergency Call 119 Emergency Call(2025) S01E11](http://www.fanxinzhui.com/rr/2603#S01E11) - 2025-04-11
-
-[地震之后 After The Quake(2025) S01E01](http://www.fanxinzhui.com/rr/2617#S01E01) - 2025-04-09
 <!-- blog end -->
 
 </td></tr></table>
