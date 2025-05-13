@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[魔物 Mamono(2025) S01E03](http://www.fanxinzhui.com/rr/2620#S01E03) - 2025-05-12
+
+[工作细胞 Hataraku Saibou(2024) S01E01](http://www.fanxinzhui.com/rr/2625#S01E01) - 2025-05-12
+
 [阿修罗医生 Dr. Asura(2025) S01E04](http://www.fanxinzhui.com/rr/2619#S01E04) - 2025-05-11
 
 [工作细胞 Hataraku Saibou(2024) S01E01](http://www.fanxinzhui.com/rr/2625#S01E01) - 2025-05-11
 
 [恋爱是黑暗 Koi wa Yami(2025) S01E04](http://www.fanxinzhui.com/rr/2622#S01E04) - 2025-05-11
-
-[从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E03](http://www.fanxinzhui.com/rr/2623#S01E03) - 2025-05-11
-
-[主播 Caster(2025) S01E04](http://www.fanxinzhui.com/rr/2618#S01E04) - 2025-05-08
 <!-- blog end -->
 
 </td></tr></table>
