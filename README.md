@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[只是弄丢了手机 ～最终章～ Final Hacking Game Smartphone wo Otoshita dake nanoni Saisyusyo Final Hacking Game(2024) S01E01](http://www.fanxinzhui.com/rr/2626#S01E01) - 2025-05-16
+
+[主播 Caster(2025) S01E05](http://www.fanxinzhui.com/rr/2618#S01E05) - 2025-05-16
+
 [对岸的家务事～这就是我的生存之道！～ Taigan no Kaji Kore ga Watashi no Ikirumichi(2025) S01E06](http://www.fanxinzhui.com/rr/2615#S01E06) - 2025-05-14
 
 [IGNITE -法之无法者- Ignite Hou no Muhoumono(2025) S01E04](http://www.fanxinzhui.com/rr/2621#S01E04) - 2025-05-14
 
 [IGNITE -法之无法者- Ignite Hou no Muhoumono(2025) S01E03](http://www.fanxinzhui.com/rr/2621#S01E03) - 2025-05-14
-
-[灾 Sai(2025) S01E06](http://www.fanxinzhui.com/rr/2616#S01E06) - 2025-05-14
-
-[魔物 Mamono(2025) S01E03](http://www.fanxinzhui.com/rr/2620#S01E03) - 2025-05-12
 <!-- blog end -->
 
 </td></tr></table>
