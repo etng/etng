@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[恋爱是黑暗 Koi wa Yami(2025) S01E06](http://www.fanxinzhui.com/rr/2622#S01E06) - 2025-05-26
+
+[恋爱是黑暗 Koi wa Yami(2025) S01E06](http://www.fanxinzhui.com/rr/2622#S01E06) - 2025-05-26
+
 [从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E05](http://www.fanxinzhui.com/rr/2623#S01E05) - 2025-05-25
 
 [阿修罗医生 Dr. Asura(2025) S01E06](http://www.fanxinzhui.com/rr/2619#S01E06) - 2025-05-23
 
 [主播 Caster(2025) S01E06](http://www.fanxinzhui.com/rr/2618#S01E06) - 2025-05-22
-
-[对岸的家务事～这就是我的生存之道！～ Taigan no Kaji Kore ga Watashi no Ikirumichi(2025) S01E07](http://www.fanxinzhui.com/rr/2615#S01E07) - 2025-05-21
-
-[恋爱是黑暗 Koi wa Yami(2025) S01E05](http://www.fanxinzhui.com/rr/2622#S01E05) - 2025-05-19
 <!-- blog end -->
 
 </td></tr></table>
