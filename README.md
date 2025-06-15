@@ -27,13 +27,13 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[主播 Caster(2025) S01E09](http://www.fanxinzhui.com/rr/2618#S01E09) - 2025-06-14
+
 [恋爱是黑暗 Koi wa Yami(2025) S01E07](http://www.fanxinzhui.com/rr/2622#S01E07) - 2025-06-09
 
 [魔物 Mamono(2025) S01E06](http://www.fanxinzhui.com/rr/2620#S01E06) - 2025-06-09
 
 [跳跃大搜查线 Odoru Daisousasen(1997) S01E07](http://www.fanxinzhui.com/rr/2610#S01E07) - 2025-06-09
-
-[王者天下 大将军归来 Kingdom4 Daisyougun no Kikan(2024) S01E01](http://www.fanxinzhui.com/rr/2627#S01E01) - 2025-06-09
 
 [王者天下 大将军归来 Kingdom4 Daisyougun no Kikan(2024) S01E01](http://www.fanxinzhui.com/rr/2627#S01E01) - 2025-06-09
 <!-- blog end -->
