@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[阿修罗医生 Dr. Asura(2025) S01E09](http://www.fanxinzhui.com/rr/2619#S01E09) - 2025-06-16
+
+[对岸的家务事～这就是我的生存之道！～ Taigan no Kaji Kore ga Watashi no Ikirumichi(2025) S01E10](http://www.fanxinzhui.com/rr/2615#S01E10) - 2025-06-16
+
+[从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E08](http://www.fanxinzhui.com/rr/2623#S01E08) - 2025-06-16
+
 [IGNITE -法之无法者- Ignite Hou no Muhoumono(2025) S01E07](http://www.fanxinzhui.com/rr/2621#S01E07) - 2025-06-15
 
 [魔物 Mamono(2025) S01E07](http://www.fanxinzhui.com/rr/2620#S01E07) - 2025-06-15
-
-[主播 Caster(2025) S01E09](http://www.fanxinzhui.com/rr/2618#S01E09) - 2025-06-14
-
-[恋爱是黑暗 Koi wa Yami(2025) S01E07](http://www.fanxinzhui.com/rr/2622#S01E07) - 2025-06-09
-
-[魔物 Mamono(2025) S01E06](http://www.fanxinzhui.com/rr/2620#S01E06) - 2025-06-09
 <!-- blog end -->
 
 </td></tr></table>
