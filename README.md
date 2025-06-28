@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[魔物 Mamono(2025) S01E08](http://www.fanxinzhui.com/rr/2620#S01E08) - 2025-06-27
+
 [从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E09](http://www.fanxinzhui.com/rr/2623#S01E09) - 2025-06-21
 
 [阿修罗医生 Dr. Asura(2025) S01E10](http://www.fanxinzhui.com/rr/2619#S01E10) - 2025-06-20
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [主播 Caster(2025) S01E10](http://www.fanxinzhui.com/rr/2618#S01E10) - 2025-06-20
 
 [恋爱是黑暗 Koi wa Yami(2025) S01E08](http://www.fanxinzhui.com/rr/2622#S01E08) - 2025-06-19
-
-[阿修罗医生 Dr. Asura(2025) S01E09](http://www.fanxinzhui.com/rr/2619#S01E09) - 2025-06-16
 <!-- blog end -->
 
 </td></tr></table>
