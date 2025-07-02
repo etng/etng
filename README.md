@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[IGNITE -法之无法者- Ignite Hou no Muhoumono(2025) S01E08](http://www.fanxinzhui.com/rr/2621#S01E08) - 2025-07-01
+
 [阿修罗医生 Dr. Asura(2025) S01E11](http://www.fanxinzhui.com/rr/2619#S01E11) - 2025-06-29
 
 [从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E10](http://www.fanxinzhui.com/rr/2623#S01E10) - 2025-06-29
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [想一个人死去 Hitori de Shinitai(2025) S01E01](http://www.fanxinzhui.com/rr/2628#S01E01) - 2025-06-28
 
 [魔物 Mamono(2025) S01E08](http://www.fanxinzhui.com/rr/2620#S01E08) - 2025-06-27
-
-[从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E09](http://www.fanxinzhui.com/rr/2623#S01E09) - 2025-06-21
 <!-- blog end -->
 
 </td></tr></table>
