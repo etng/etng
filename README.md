@@ -27,6 +27,8 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[初恋DOGs Hatsukoi Dogs(2025) S01E01](http://www.fanxinzhui.com/rr/2630#S01E01) - 2025-07-09
+
 [IGNITE -法之无法者- Ignite Hou no Muhoumono(2025) S01E09](http://www.fanxinzhui.com/rr/2621#S01E09) - 2025-07-08
 
 [跳跃大搜查线 Odoru Daisousasen(1997) S01E08](http://www.fanxinzhui.com/rr/2610#S01E08) - 2025-07-08
@@ -34,8 +36,6 @@ Here are some ideas to get you started:
 [DOPE 毒品管理部特搜课 DOPE Mayaku Torishimaribu Tokusouka(2025) S01E01](http://www.fanxinzhui.com/rr/2629#S01E01) - 2025-07-07
 
 [恋爱是黑暗 Koi wa Yami(2025) S01E09](http://www.fanxinzhui.com/rr/2622#S01E09) - 2025-07-06
-
-[从夺走你的那天起 Anata wo Ubatta Sono Hi kara(2025) S01E11](http://www.fanxinzhui.com/rr/2623#S01E11) - 2025-07-05
 <!-- blog end -->
 
 </td></tr></table>
