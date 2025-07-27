@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[复制体 前妻的复仇 Replica Moto Tsuma no Fukushu(2025) S01E03](http://www.fanxinzhui.com/rr/2633#S01E03) - 2025-07-26
+
+[能面检察官 Noumen Kenji(2025) S01E02](http://www.fanxinzhui.com/rr/2636#S01E02) - 2025-07-26
+
 [想一个人死去 Hitori de Shinitai(2025) S01E04](http://www.fanxinzhui.com/rr/2628#S01E04) - 2025-07-25
 
 [诱拐之日 Yuukai no Hi(2025) S01E03](http://www.fanxinzhui.com/rr/2632#S01E03) - 2025-07-24
 
 [初恋DOGs Hatsukoi Dogs(2025) S01E03](http://www.fanxinzhui.com/rr/2630#S01E03) - 2025-07-24
-
-[夺爱，盛夏 Ubai Ai Manatsu(2025) S01E01](http://www.fanxinzhui.com/rr/2639#S01E01) - 2025-07-24
-
-[第19科的病历簿 19 Banme no Karte(2025) S01E01](http://www.fanxinzhui.com/rr/2638#S01E01) - 2025-07-23
 <!-- blog end -->
 
 </td></tr></table>
