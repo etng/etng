@@ -27,15 +27,15 @@ Here are some ideas to get you started:
 
 ## Latest Blog Posts
 <!-- blog start -->
+[第19科的病历簿 19 Banme no Karte(2025) S01E05](http://www.fanxinzhui.com/rr/2638#S01E05) - 2025-08-28
+
+[VOICE～亡者之声～ Voice.Inochinakimono no Koe(2009) S01E03](http://www.fanxinzhui.com/rr/2640#S01E03) - 2025-08-28
+
+[VOICE～亡者之声～ Voice.Inochinakimono no Koe(2009) S01E02](http://www.fanxinzhui.com/rr/2640#S01E02) - 2025-08-28
+
 [第19科的病历簿 19 Banme no Karte(2025) S01E04](http://www.fanxinzhui.com/rr/2638#S01E04) - 2025-08-27
 
 [Stingers 警视厅卧底调查室 Stingers Keishicho Otori Sosa Kenshoshitsu(2025) S01E05](http://www.fanxinzhui.com/rr/2637#S01E05) - 2025-08-27
-
-[高墙内的理发店 Hei no Naka no Biyoushitsu(2025) S01E01](http://www.fanxinzhui.com/rr/2643#S01E01) - 2025-08-27
-
-[幸福的婚姻 Shiawasena Kekkon(2025) S01E06](http://www.fanxinzhui.com/rr/2635#S01E06) - 2025-08-26
-
-[DOPE 毒品管理部特搜课 Dope Mayaku Torishimaribu Tokusouka(2025) S01E08](http://www.fanxinzhui.com/rr/2629#S01E08) - 2025-08-26
 <!-- blog end -->
 
 </td></tr></table>
